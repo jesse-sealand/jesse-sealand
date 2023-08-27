@@ -7,5 +7,5 @@
   - Of course, there's my [GitHub Page](https://jesse-sealand.github.io/).
 
 
-#### Want to know more about me?
+#### You want to know more about me?
 We just met, let's keep this professional for now.
